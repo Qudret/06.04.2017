@@ -1,0 +1,1 @@
+xeyirli olsun elave etdim
